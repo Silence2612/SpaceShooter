@@ -36,7 +36,7 @@
 
 ## 🎥 Gameplay Showcase  
 
-📽️ **Watch the game in action:** [Showcase Video](https://drive.google.com/drive/folders/1oTZYGJKVK9olf_yN-1C0y-DUmGA7cY2_?usp=sharing)  
+📽️ **Watch the game in action:** [Showcase Video](https://drive.google.com/drive/folders/1hySTg3eVbAZzB5jGNJdScNeCABJ-zM92?usp=drive_link)  
 
 ---
 
